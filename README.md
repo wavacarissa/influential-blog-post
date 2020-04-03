@@ -1,1 +1,1 @@
-# influential-blog-post
+# Influential Blog Post
